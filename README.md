@@ -5,7 +5,7 @@
 
 - 📫 How to reach me **sathickbatcha71@gmail.com**
 
-- ⚡ Fun fact **Dont tell this to anyone,I am batman**
+- ⚡ Fun fact **Dont tell this to anyone,I am batman 🦇 **
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
